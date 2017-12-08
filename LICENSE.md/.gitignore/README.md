@@ -1,2 +1,0 @@
-# UnitedSquids
-Digital Art Portfolio
